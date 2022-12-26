@@ -1,1 +1,1 @@
-# Making space travels affordable for everyone
+# Making Space Travels Affordable For Everyone
